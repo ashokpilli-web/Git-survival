@@ -1,1 +1,1 @@
-# "I’m the best,"
+to "We’re both the best, ugh"
