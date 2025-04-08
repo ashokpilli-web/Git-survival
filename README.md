@@ -1,1 +1,1 @@
-# "I’m still screwed,"
+to "We’re both the best, ugh"
